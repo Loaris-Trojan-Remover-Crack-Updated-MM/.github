@@ -4,7 +4,7 @@
 Loaris Trojan Remover is a lightweight anti-malware program capable of all essential functions needed to provide PC safety.
 
 
-# [🔴➤ ► Loaris Trojan Remover Link](https://mozcrack.com/dll/)
+# [➤ ► Loaris Trojan Remover Link](https://beecrack.com/lld/)
 
 
 
